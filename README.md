@@ -1,7 +1,7 @@
 #  本项目主要用来存储重要的资料下载地址，其中包括软件相关的工具下载，具体的描述如下
 
 ## 1.图片和小说查看
-[https://pan.baidu.com/s/1HFO7_te3v20r-7krNWrjPQ#list/path=%2F]
+https://pan.baidu.com/s/1HFO7_te3v20r-7krNWrjPQ#list/path=%2F
 序列号：BF8Y8-GN2QH-T84XB-QVY3B-RC4DF
 提取码：CODE
 ## 2. 百度网盘快速下载地址
