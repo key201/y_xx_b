@@ -2,6 +2,8 @@
 
 ## 1.图片和小说查看
 https://pan.baidu.com/s/1HFO7_te3v20r-7krNWrjPQ#list/path=%2F
+
+*  [链接本仓库里的URL](https://github.com/key201/y_xx_b/issues)
 序列号：BF8Y8-GN2QH-T84XB-QVY3B-RC4DF
 提取码：CODE
 ## 2. 百度网盘快速下载地址
